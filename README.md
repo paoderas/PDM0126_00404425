@@ -1,0 +1,2 @@
+Link video: https://ucaedusv-my.sharepoint.com/:v:/g/personal/00404425_uca_edu_sv/IQBzHF1wDYUCQ7TI_gHAjcZ8AfPvEKRjxWLzaBU89BBgvAw?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJPbmVEcml2ZUZvckJ1c2luZXNzIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXciLCJyZWZlcnJhbFZpZXciOiJNeUZpbGVzTGlua0NvcHkifX0&e=2fpo7F
+Link resumen: https://ucaedusv-my.sharepoint.com/:b:/g/personal/00404425_uca_edu_sv/IQBlxUkM84xZSZvEgm-4WHdbAU3PQb1VyCyFipmpd6H9fck?e=dvsZt3
